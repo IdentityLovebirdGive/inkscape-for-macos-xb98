@@ -1,4 +1,4 @@
-# 
+# automatic Inkscape for macOS Automation | AI upscaling + shortcut customization offers the most advanced Inkscape for macOS automation, with AI upscaling and shortcut
 
 
 
